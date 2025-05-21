@@ -1,2 +1,1 @@
-# zdlqtnc
 ProfitsStockFX Panoramica 2025 – Quello che nessuno ti dice!
